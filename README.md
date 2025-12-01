@@ -1,0 +1,2 @@
+# DEEPSEEKR112.1.25Jailbreak
+1.0
